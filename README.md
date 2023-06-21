@@ -1,4 +1,4 @@
 - 🌱 I’m currently learning Python and Sourcepawn.
 - 💬 Ask me about Universe.
-- 📫 How to reach me: Yuka, The Kuudere Girl.#4809
+- 📫 How to reach me: yukaniki
 - 😄 Pronouns: She/Her
